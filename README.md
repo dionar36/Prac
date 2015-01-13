@@ -1,1 +1,1 @@
-I'm just trying get better at this, if you read this im sorry if i have make a lot of copy.
+I'm starting to like this class, better that the one i just to have. I will do my best to learn everything in this classs.
